@@ -1,1 +1,0 @@
-# idolish7_rc
